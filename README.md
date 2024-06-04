@@ -1,16 +1,15 @@
-## Hi there 👋
+## seja bem-vindos ao meu perfil 🔥
 
-<!--
-**Oluissalex/oluissalex** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+meu nome é luis salex
 
-Here are some ideas to get you started:
+-eu gosto de comer homem
+-eu amo o meu namorado!💍
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+-ultilizo esse espaço para minha organiaçãob e compartilhamento dos meus projetos desenvolvidos.
+
+### você pode entrar em contato comigo 📧
+luisantonio170407@gmail.com
+
+@oluissalex
+
+![](https://media.tenor.com/uj55z9-b0RcAAAAi/twerking-cardi-b.gif)          ![](https://media1.tenor.com/m/ZmEzG-hpSyQAAAAC/beyonce-beyonce-knowles.gif)   ![](https://media1.tenor.com/m/f71-DS2o8EwAAAAC/mc-anitta-larissa-jura.gif)
