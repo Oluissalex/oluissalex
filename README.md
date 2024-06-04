@@ -1,7 +1,5 @@
 ## seja bem-vindos ao meu perfil 🔥
 
-meu nome é luis salex
-
 -eu gosto de comer homem
 
 -eu amo o meu namorado!💍
